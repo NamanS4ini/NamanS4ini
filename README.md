@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Central University CSE Department Website<br>👯 I’m looking to collaborate on Something I Love and use<br>🤝 I’m looking for help with Job<br>🌱 I’m always learning something new <br>🌌 Ask me about Space and the Universe<br>⚡ Fun fact about me: I won in India's National Science Techno Fair.
+🔭 I’m currently working on Central University CSE Department Website<br>👯 I’m looking to collaborate on something I Love and use<br>🤝 I’m looking for help with something fun<br>🌱 I’m always learning something new <br>🌌 Ask me about Space and the Universe<br>⚡ Fun fact about me: I won in India's National Science Techno Fair.
 
 
 ## 🌐 Socials:
